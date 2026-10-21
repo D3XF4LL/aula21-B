@@ -1,0 +1,1 @@
+# Ser arrogante é que nem ser um elefante na africa, se voce levar um tiro de bazuca voce morre
